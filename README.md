@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Framework etc..,,**
 
-- 📝 I regularly write articles [Regular project work](Regular project work)
+- 📝 I regularly write articles [Regular Study work] + (Regular project work)
 
 - 💬 Ask me about **😎cool Tell**
 
